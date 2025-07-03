@@ -103,6 +103,4 @@ Ta gjerne kontakt hvis din bedrift ønsker en uforpliktende dataprat.
 
 ### 🚀 En enklere, tryggere, forutsigbar, framtidsrettet og smartere datahverdag for din bedrift!
 
-**© 2025 Probits AS. Alle rettigheter reservert.**
-
 </div>
